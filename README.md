@@ -1,8 +1,10 @@
 # A public archive of LGBT+ Pride Month
 
+[**→ View the 2019 archive**](./2019/)
+
 LGBT+ people continue to fight for equal treatment under the law and in society. Not so long ago in the United States and even today in many countries, people could not be publicly out and still be employable. Companies publicly displaying their willingness to employ and serve LGBT+ customers is progress. Companies willing to take economic risk by visibly supporting LGBT+ people is welcomed allyship.
 
-The debate over corporate presence at Pride events is worthwhile discussion we should continue. As President Obama often said, “Better is good.” But “better” is not the final destination in the fight for equality. My hopes and demands are for any company displaying Pride colors to ensure its LGBT+ employees are treated equally and to ensure its political donations prioritize LGBT+ equality over whatever policies are being purchased.
+The debate over corporate presence at Pride events is worthwhile discussion we should continue. As President Obama often said, “Better is good.” But “better” is not the final destination in the fight for equality. My hopes and demands are for any company displaying Pride colors to ensure its LGBT+ employees are treated equally and to ensure its political donations prioritize LGBT+ equality over whatever policies are being purchased. Katie Martell wrote the best analysis of ✌️rainbow washing✌️ I have read: [“Pride or Pandering?”](https://www.linkedin.com/pulse/pride-pandering-katie-martell/)
 
 
 # Copyright
