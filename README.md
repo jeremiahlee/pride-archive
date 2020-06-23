@@ -1,5 +1,7 @@
 # A public archive of LGBT+ Pride Month
 
+[**→ View the 2020 archive**](./2020/)
+
 [**→ View the 2019 archive**](./2019/)
 
 LGBT+ people continue to fight for equal treatment under the law and in society. Not so long ago in the United States and even today in many countries, people could not be publicly out and still be employable. Companies publicly displaying their willingness to employ and serve LGBT+ customers is progress. Companies willing to take economic risk by visibly supporting LGBT+ people is welcomed allyship.
